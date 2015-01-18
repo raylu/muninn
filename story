@@ -10,7 +10,7 @@ She noticed that I was awake and stopped what she was doing.
 "Hi", she said while offering me a smile.
 Not the kind of smile that comes to you when you're happy, but the kind that you offer when you should.
 I tried to sit up and speak at the same time, but my throat was dry and my body's aches and pains made themselves known.
-She came over, uncapped a bottle of water on the table next to me, and help me sit up.
+She came over, uncapped a bottle of water on the table next to me, and helped me sit up.
 
 Drinking had never been such a chore, nor so painful.
 I took a few sips and tried to thank her, which hurt.
@@ -93,7 +93,7 @@ The second woman delivered an impish grin.
 The first woman saved me.
 "Yes, /he/ is, Elle. And probably hungry too."
 
-The second one had set down the bowl she was carrying and was about to set down the rest of the food.
+Elle had set down the bowl she was carrying and was about to set down the rest of the food.
 "Can he eat in here?"
 
 I answered, "Um, I'd prefer to sit. If that's okay."
@@ -110,7 +110,8 @@ Instead of individual chairs, there were benches.
 Most of the remaining plates were empty so the leftovers must have been gathered onto what Elle was carrying.
 
 She set them down at the nearest end of the table and the bowl joined the plates shortly afterward.
-The first woman set down the fork in front of me. "Thanks", I said, and dug in.
+The first woman set down the fork in front of me.
+"Thanks", I said, and dug in.
 
 They sat and watched me eat the way you'd watch a stray, starving puppy eat: with that particular kind of amused expression.
 I binged.
@@ -129,8 +130,8 @@ Her grin changed from watching-a-puppy back to the imp.
 After a moment, Anne asked, "So tell us about yourself".
 
 "I'm..."
-I paused to think about what to say.
 I had the attention of both the women.
+I paused to think about what to say.
 Perhaps I should tell them my name?
 No, that wouldn't do.
 Expectations were high in this dining room.
@@ -160,7 +161,7 @@ I proceeded to empty most of the glass.
 
 "This is the best drink ever created" was my reply.
 That earned me a chuckle and another giggle.
-I sat back a little and relaxed from injesting everything in front of me for the moment.
+I sat back a little and relaxed from ingesting everything in front of me for the moment.
 "So, where am I?"
 
 Anne waved a finger at me and maintained her matronly demeanor.
@@ -198,7 +199,7 @@ Not that I'd get there any time soon with my pod destroyed.
 
 Anne: "Do you know how you crashed?"
 Me: "Not entirely clear. I was getting ready to go to Amdonen.
-     The jump gate in KA mis-fired and I ended up... somewhere.
+     The jump gate in NKA mis-fired and I ended up... somewhere.
      Near Fensi 3, I guess."
 Elle: "A gate misfired and you ended up in the gravitational pull of Trinity, not in a rock or just in the middle of nowhere?
        Do you know how unlikely that is?"
@@ -232,9 +233,9 @@ The claws of the empire and the fruits of technology would be slow in getting he
 I got the impression from Elle's enthusiastic explanation the she wanted to go to space but lacked the means to.
 That didn't bode well for me if I wanted a quick exit off this planet.
 
-Me: "That was really a question..."
+Me: "That wasn't really a question..."
 Elle: "Do you realize how astronomically lucky you are?"
-Me: "An empire-controlled jump gate fires countless times taking pods and ships from KA to Amdonen and I end up nearly dead in Fensi.
+Me: "An empire-controlled jump gate fires countless times taking pods and ships from NKA to Amdonen and I end up nearly dead in Fensi.
      I don't feel terribly lucky.
      More importantly, what's in this hot pop?"
 Anne: "You're going to be answering questions until next year if you want an answer to that one."
@@ -251,7 +252,7 @@ This was something they were proud of, something they probably invented.
 Apparently, that counted as my question.
 I sighed an unnecessary, dramatic sigh.
 "I was pretty disoriented. My pod was still moving forward from the jump.
-It started spinning, slowly at first, speeing up until it got out of control. I panicked and eventually blacked out."
+It started spinning, slowly at first, speeding up until it got out of control. I panicked and eventually blacked out."
 I paused a bit to see if I had any memories before waking up to a beautiful woman by my bedside,
 not quite in her prime but not quite ready to settle down and grow old.
 
@@ -272,6 +273,6 @@ Eventually, I realized I was rather full but it had taken a while for my body to
 Perhaps I should ask for a way off this planet?
 But that would seem ungrateful after they had saved my life, nursed me back to health,
 and just got done feeding me and introducing me to the wonders of hot pop.
-So instead I asked, "how come we're speaking English?"
+So instead I asked, "How come we're speaking English?"
 
 Anne gave me a very strange look.
