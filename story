@@ -379,7 +379,7 @@ Also, my name is John", I said, smoothly segueing into introductions.
 
 "Same to you."
 I took a bite of food while wondering how and, more importantly, when to ask about getting off this planet.
-They had shown me - were showing me a lot of hospitality and I was quite comfortable here anyway.
+They had shown me - were showing me - a lot of hospitality and I was quite comfortable here anyway.
 What was the rush?
 
 "So", I asked, "what meals is it appropriate to consume hot pop during?"
@@ -425,11 +425,11 @@ Lives that you can read about but still seem so bizarre and foreign and not at a
 except you could get in a starship or a pod or whatever and go there and live with them for a little bit,
 like you've done, or even spend the rest of life there?"
 
-"Mhm"
+"Mhm."
 
-"Well, to me, everything on Trinity is Trinity and everything else is just 'space'.
-I've never been anywhere else.
-I believe those places exist, but they only really exist for me in stories.
+"Well, I've never been anywhere but here.
+I believe those places and those people exist, but they only really exist for me in stories.
+To me, everything on Trinity is Trinity and everything else is just 'space'.
 So yes, you live in space."
 
 It was a bit before anyone spoke again.
