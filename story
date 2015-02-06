@@ -276,3 +276,165 @@ and just got done feeding me and introducing me to the wonders of hot pop.
 So instead I asked, "How come we're speaking English?"
 
 Anne gave me a very strange look.
+
+--
+
+When I finished eating, I offered to help with the dishes so as not to seem ungraceful, but I got the expected shooing off to bed.
+With both the need to use the toiletroom and the hunger and thirst gone, my body informed me I was quite tired.
+I don't even remember how I got into bed.
+
+I woke up to a very bright sun streaming through the shades.
+This confused me for a while, partially because I was half-asleep but mostly
+because I'd forgotten that real sunlight didn't turn on and off via a switch.
+
+I left my room but couldn't hear anything.
+I got to the end of the hallway and, after a moment's debate, headed to the restroom to clean myself up.
+With that out of the way, I walked to the kitchen and towards the dining room door.
+
+Opening the door broke the silence.
+There was a lot of chattering in the dining room.
+Apparently, this door was soundproof.
+
+I was greeted by the chatter and bustling of breakfast.
+There were a dozen or so sisters gathered, some still eating, most just chatting.
+All eyes turned to me when I entered.
+It was like being the new kid at academy, except I was a boy at an all-girls school.
+The teacher - or in this case the matron - I mean Anne - came to my rescue.
+She stood up and walked over to me to complete the teacher-introducing-new-student picture.
+
+"Sisters, this is John.
+John, this is everyone."
+
+"Hello, everyone."
+I paused for a brief moment to decide whether to play the funny card or the humble card.
+I was a scanner salesman specializing in deep space probes - I didn't do humble very well,
+but it seemed more appropriate here considering I'd be dead if it weren't for them.
+"I'm still not totally clear on what happened, but I'd be dead if it weren't for you, so thanks for everything so far."
+
+A face I didn't recognize piped up.
+"So, the mysterious spaceman finally shows his face after 3 days!"
+
+Wait, I was out for 3 days?!
+"Wait, I was out for 3 days?", I managed to not exclaim.
+
+"Well, more like 3 and a half-"
+
+"-No, just half a day", Anne interrupted with a mock frown.
+
+The unidentified woman had an impish grin that I recognized.
+"You must be Elle's partner in crime."
+
+Elle chimed in, "Sister, actually. By birth".
+
+"Same thing", Anne and I said at the same time.
+A glance and a giggle passed between the two of us.
+
+"If you sit near us", Anne said, "Elle and I will deflect questions for you".
+
+Elle's sister was seated at the table nearer the kitchen door.
+We moved back to the other table where Anne and Elle were sitting.
+I was given a plate, took my seat, and had hardly located silverware before the first question came.
+
+"So, what happened to the spaceman's spaceship?"
+I looked up at the interrogator.
+
+"Let the poor man settle-" started Anne.
+
+"It wasn't a spaceship, it was a pod!", interrupted Elle.
+
+"Who cares about the difference?", my interrogator asked.
+
+"Pods can't warp by themselves! They have to use stargates. They're not spaceships!"
+
+"The old man's Raven has to use a stargate to warp too."
+
+"No, it uses the stargate to jump, not to warp.
+It can warp by itself."
+This last rebuttal was accompanied by wild gesticulations.
+
+"Whatever, it's a ship and it flies through space, so it's a spaceship."
+
+I cleared my throat.
+This was a question that came up sometimes, especially when selling to less savvy buyers.
+
+"Does an airship fly through the air?", I asked.
+
+"Yes", my interrogator responded.
+
+"Does a bird fly through the air?"
+
+A pause, while she mulled it over.
+
+I continued, "More to the point, pods don't really fly through space in the sense that they propel themselves.
+They just get launched through warp tunnels by stargates.
+All they really do is keep the passenger safe while they're hurling through space."
+
+"OK. If the spaceman says so, I'll believe it", said my interrogator.
+
+"By the way, this food is delicious.
+Also, my name is John", I said, smoothly segueing into introductions.
+
+"Oh!" she said, bringing her hand towards her mouth in a gesture of feigned, but not impolite, politeness.
+"My name is Inna. Pleased to meet you."
+
+"Same to you."
+I took a bite of food while wondering how and, more importantly, when to ask about getting off this planet.
+They had shown me - were showing me a lot of hospitality and I was quite comfortable here anyway.
+What was the rush?
+
+"So", I asked, "what meals is it appropriate to consume hot pop during?"
+
+Elle immediately replied, interrupting any would-be nay-sayers, "All of them, silly!"
+
+"Hot pop for breakfast?" Inna asked with a disapproving look - the mildly offended kind.
+
+"And brunch and lunch and afternoon snack and dinner and second dinner!", Elle replied without missing a beat.
+
+For a moment, I considered the possibility that the custom here was to eat 6 meals a day.
+After all, I had been unconscious for most of my time here so I wouldn't know better.
+If that were the case, I needed to eat less.
+It probably wasn't, though.
+
+Elle started standing up.
+
+"Wait, are you going to heat it up now?", asked Inna.
+
+Elle thought about it for a second and sat back down.
+
+I seized the opportunity to ask, "So hot pop is made at room temperature and then heated?"
+
+Elle and Inna started speaking at the same time but Anne spoke over them.
+"How much are you willing to pay for that secret?"
+
+"Well," I started, and then paused to think.
+"I'd give up any hope of going back home to learn the dark craft of hot pop."
+
+"Ah", Inna said, "so the spaceman wants to go back to space."
+
+"What, do you think I just live in space?"
+
+Inna paused a moment to think, then thought for a moment more.
+"You know how, at night, you look up at the sky and see all the stars?"
+
+"Mhm", I slowly agreed, not sure if this was related to the conversation or if she was crazy.
+
+"And you know how all those stars have planets orbiting them and most of those planets have people living on them,
+living lives just like your own except with a different day/night cycle and different seasons
+and different culture and different customs, diverged so many millennia ago that some are totally unimaginable to you.
+Lives that you can read about but still seem so bizarre and foreign and not at all like your own
+except you could get in a starship or a pod or whatever and go there and live with them for a little bit,
+like you've done, or even spend the rest of life there?"
+
+"Mhm"
+
+"Well, to me, everything on Trinity is Trinity and everything else is just 'space'.
+I've never been anywhere else.
+I believe those places exist, but they only really exist for me in stories.
+So yes, you live in space."
+
+It was a bit before anyone spoke again.
+We were all a little taken aback by the sudden outpouring of introspection.
+
+"Well," I said, "where I'm from, it's not customary to be so smart in the morning."
+
+Anne gave me a strange look.
