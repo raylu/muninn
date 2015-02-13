@@ -34,7 +34,7 @@ I had the impression that she gave me a strange look when she noticed I was pass
 
 The second time I awoke, I was less surprised at the bed and room I woke up in, but still surprised.
 I couldn't sense anyone else in the room with me, but it was night and the room was very dark.
-I tried to sit up and surprised myself with how easily I was able to do it.
+I tried to sit up and was able to do it fairly easily.
 I guess I'd gotten a lot better - or I just really needed to pee.
 
 There was a faint light coming from the desk where the bottle of water was.
