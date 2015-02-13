@@ -382,6 +382,22 @@ I took a bite of food while wondering how and, more importantly, when to ask abo
 They had shown me - were showing me - a lot of hospitality and I was quite comfortable here anyway.
 What was the rush?
 
+"Inna isn't traditionally an Amarrian name," I said with the appropriate amount of hesitation.
+
+"My grandmother was born Gallente and she gave me her name."
+
+This was a bit odd, but I figured out where it was going.
+I let her fill me in anyway.
+"That's not a very Gallente tradition."
+
+"My father was Amarr."
+
+"Ah."
+That was indeed a very Amarrian tradition.
+There were a lot of reasons for an Amarr woman to find a Gallente husband.
+Usually, the idea was to move to Gallente Federation space, not end up out here.
+Then again, her parents weren't here and I don't know what the usual reasons for joining the sisters are.
+
 "So", I asked, "what meals is it appropriate to consume hot pop during?"
 
 Elle immediately replied, interrupting any would-be nay-sayers, "All of them, silly!"
