@@ -68,6 +68,11 @@ She pointed back the way I came.
 
 I turned around and left.
 
+Once I took care of business, I was able to calm down and get my bearings.
+The toiletroom was clean, but mostly familiar.
+The cleaner was an older model, but perfectly serviceable.
+Getting rid of a layer of sweat that had accumulated in my sleep felt fantastic.
+
 When I left the toiletroom, I was feeling much better and much hungrier.
 In the direction of the kitchen, the sound of running water had been replaced by humming.
 I followed the humming into the light of the kitchen.
@@ -204,7 +209,7 @@ Me: "Not entirely clear. I was getting ready to go to Amdonen.
 Elle: "A gate misfired and you ended up in the gravitational pull of Trinity, not in a rock or just in the middle of nowhere?
        Do you know how unlikely that is?"
 
-My turn to delivery a teeth-baring smile.
+My turn to deliver a teeth-baring smile.
 "My question. And the most important one yet:
 What am I drinking?"
 
@@ -409,7 +414,7 @@ Elle immediately replied, interrupting any would-be nay-sayers, "All of them, si
 For a moment, I considered the possibility that the custom here was to eat 6 meals a day.
 After all, I had been unconscious for most of my time here so I wouldn't know better.
 If that were the case, I needed to eat less.
-It probably wasn't, though.
+I decided I should probably stop overthinking things.
 
 Elle started standing up.
 
@@ -454,3 +459,53 @@ We were all a little taken aback by the sudden outpouring of introspection.
 "Well," I said, "where I'm from, it's not customary to be so smart in the morning."
 
 Anne gave me a strange look.
+
+--
+
+The rest of breakfast was less philosophical.
+
+"Alright John", said Anne when we had finished,
+"I'm on cleaning duty today, so you're coming with me."
+
+"I am?"
+
+"Yep."
+
+"OK", I said, pausing a little.
+"Is there any way, um-", I said, pausing a lot.
+
+"-you can get off this rock and back to your life?", she finished.
+
+"Well," I continued, pausing some more.
+"I've been thinking about it, yeah."
+
+She smiled.
+"There's a guy in town who knows about this sort of thing.
+We can go see him tomorrow."
+
+The rest of the day passed mostly uneventfully, though with a lot of something resembling small talk.
+It was like the question game, but less antagonistic.
+Apparently, the sisters came from a variety of backgrounds.
+There were quite a few sad stories - many of them didn't have any great options before coming to the sisterhood.
+
+Lunch was also less awkward.
+I guess they were used to new faces joining them.
+In the afternoon, I got the chance to ask something I'd been wondering about for a while:
+"How far is 'town', exactly?"
+
+"2 hours on a good day."
+
+"What makes a 'good day'?"
+
+"No rain", she said, as if that was explanation enough.
+
+I tried to think it through, but came up blank.
+"What does rain have to do with anything?", I finally asked.
+
+"The road gets muddy and you have to drive more carefully."
+
+"The... wait, you have a... car?!"
+Nothing about this place had seemed quite that old-fashioned.
+My reaction was very amusing to her, though.
+
+She gave me a strange look.
