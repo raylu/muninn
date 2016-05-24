@@ -508,4 +508,58 @@ I tried to think it through, but came up blank.
 Nothing about this place had seemed quite that old-fashioned.
 My reaction was very amusing to her, though.
 
-She gave me a strange look.
+She gave me a look that could only be described as strange.
+
+--
+
+We were scheduled to go see the "guy in town" about getting back to space today, so I was up bright and early.
+Elle noticed me wolfing down breakfast.
+
+"You know we can't leave any sooner just by eating faster, right?"
+
+"Why not?" I asked.
+
+"We can only get the car ready so fast anyway." was the reply.
+I was way out of my depth here.
+I have no idea how those things worked.
+
+Once the meal was over, we headed over to the ancient vehicle.
+A series of long-forgotten, arcane maneuvers were executed, and it roared to life.
+It was a lot noisier than I expected, but I didn't want to complain.
+
+Riding it was somewhat worse than expected.
+Being on the ground felt... odd, for sure, but I knew about that.
+What the books and films didn't mention was that cars were subject to bumps in the road.
+You could really feel every little pebble we drove over.
+It's obvious in retrospect, but hindsight doesn't ease discomfort.
+
+"Oh yeah, something important I need to mention: when we meet the guy, it's important to not call him 'Ben'."
+
+"Who?", I asked.
+
+"The capsule guy", she replied.
+
+That didn't make a whole lot of sense without some context.
+"What should I call him then?"
+
+"Don't worry about it."
+That was as much as I got out of her on that subject.
+
+The "town" was exactly as advertised; mostly, a meeting place for nearby citizens.
+We were not the only people travelling by car.
+The "guy", however, didn't run the sort of shop I was expecting.
+It wasn't exactly a spaceship shop or even a pod rental place.
+He was a vehicle maintenance... guy, for lack of a better term, that happend to have some pods.
+
+"I know your car's getting a bit old, but there's no way she broke down twice this month", he greeted us.
+
+"No no, Benj, we're here to get a pod for John here," Anne replied, indicating me.
+Benj looked at me as if noticing me for the first time, then warily as if sizing me up.
+
+"You're an offworlder, aren't you?", Benj said.
+
+The term seemed a bit odd to me, but I was missing enough context for this whole situation and just let it go.
+"Yes sir, I guess I am."
+
+Benj turned around and waved us into his shop, heading for the pods.
+"It's been a long time since someone came looking for th-"
