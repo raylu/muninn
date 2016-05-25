@@ -563,3 +563,40 @@ The term seemed a bit odd to me, but I was missing enough context for this whole
 
 Benj turned around and waved us into his shop, heading for the pods.
 "It's been a long time since someone came looking for th-"
+
+He was interrupted by blaring sirens.
+I froze up.
+Benj and Anne looked at each other for a second.
+
+"Shit."
+Benj ran through a door on the side of his shop.
+
+"This way!" Anne grabbed my arm and dragged me back toward the car.
+Halfway there, a something knocked the top half of a build off.
+Our car and the half-dozen parked next to it turned into metal pancakes.
+Anne turned around with a panicked look in her eyes.
+
+I took this moment to ask her "what's going on?!"
+
+"Amarr raid! We can't stay here!"
+She dragged me down the street, away from what seemed to be the center of the noise.
+Now that I had my wits about me again, I noticed all the screaming.
+And... was that gunfire?
+The laser discharges I'm used to, but gunfire?
+
+We turned a corner corner and she ran right into a soldier clad in brown and gold, colors of the empire.
+His visor hid his face.
+"Do not resist and you-" he started, but she was already turning to run back, grip on my arm tight as ever.
+
+His first discharge flew through the spot she was standing in.
+We ran a few meters back down the street before the second shot went flying by us.
+We had no cover that we could get to quickly.
+I didn't dare turn around to look.
+Lasers have fantastic fire rates.
+We were lucky to get even this far.
+
+The third shot hit me square in the back.
+I stumbled and fell, dragging her with me.
+"Do not resist" were the last words I heard.
+Before the world faded to black, the last thing I saw was Anne's face,
+scruched up in a weird look I couldn't make sense of - it was strange.
