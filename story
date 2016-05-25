@@ -589,14 +589,13 @@ His visor hid his face.
 "Do not resist and you-" he started, but she was already turning to run back, grip on my arm tight as ever.
 
 His first discharge flew through the spot she was standing in.
-We ran a few meters back down the street before the second shot went flying by us.
+We ran a few meters back down the street before the second discharge went flying by us.
 We had no cover that we could get to quickly.
 I didn't dare turn around to look.
 Lasers have fantastic fire rates.
 We were lucky to get even this far.
 
-The third shot hit me square in the back.
-I stumbled and fell, dragging her with me.
-"Do not resist" were the last words I heard.
-Before the world faded to black, the last thing I saw was Anne's face,
-scruched up in a weird look I couldn't make sense of - it was strange.
+Anne turned her head to look as the soldier started to say something about not resisting again.
+The third discharge hit me square in the back.
+The world didn't so much fade to black as become black instantaneously.
+The last thing I saw was Anne's face scruched up in a weird look I couldn't make sense of - it was strange.
