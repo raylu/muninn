@@ -69,9 +69,9 @@ She pointed back the way I came.
 I turned around and left.
 
 Once I took care of business, I was able to calm down and get my bearings.
-The toiletroom was clean, but mostly familiar.
+The toiletroom mostly familiar.
 The cleaner was an older model, but perfectly serviceable.
-Getting rid of a layer of sweat that had accumulated in my sleep felt fantastic.
+Getting rid of the layer of sweat that had accumulated in my sleep felt fantastic.
 
 When I left the toiletroom, I was feeling much better and much hungrier.
 In the direction of the kitchen, the sound of running water had been replaced by humming.
@@ -104,6 +104,7 @@ Elle had set down the bowl she was carrying and was about to set down the rest o
 I answered, "Um, I'd prefer to sit. If that's okay."
 
 She frowned an overly-expressive, exaggerated frown and lifted the plates back up, leaving the bowl where it was.
+I guess I looked either tired or pitiful enough.
 
 "Follow me", she said, and made for the door she came through.
 I tried to open the door for her, but she made it there first and opened it with her foot.
@@ -242,7 +243,7 @@ Scanning tech had come a long way in the last decade.
 The newest deep space probes could get a lock on a pod in minutes.
 
 Fensi was far from empire-controlled space, though.
-The claws of the empire and the fruits of technology would be slow in getting here.
+The claws of the Amarr empire and the fruits of technology would be slow in getting here.
 I got the impression from Elle's enthusiastic explanation the she wanted to go to space but lacked the means to.
 That didn't bode well for me if I wanted a quick exit off this planet.
 
@@ -558,7 +559,7 @@ That was as much as I got out of her on that subject.
 
 The "town" was exactly as advertised; mostly, a meeting place for nearby citizens.
 We were not the only people travelling by car.
-The "guy", however, didn't run the sort of shop I was expecting.
+The "guy", who was not "Ben", didn't run the sort of shop I was expecting.
 It wasn't exactly a spaceship shop or even a pod rental place.
 He was a vehicle maintenance... guy, for lack of a better term, that happend to have some pods.
 
@@ -583,17 +584,19 @@ Benj and Anne looked at each other for a second.
 Benj ran through a door on the side of his shop.
 
 "This way!" Anne grabbed my arm and dragged me back toward the car.
-Halfway there, a something knocked the top half of a build off.
+Halfway there, a something knocked the top half of a building off.
 Our car and the half-dozen parked next to it turned into metal pancakes.
 Anne turned around with a panicked look in her eyes.
 
-I took this moment to ask her "what's going on?!"
+I took this moment to ask her "What's going on?!"
 
 "Amarr raid! We can't stay here!"
 She dragged me down the street, away from what seemed to be the center of the noise.
 Now that I had my wits about me again, I noticed all the screaming.
 And... was that gunfire?
 The laser discharges I'm used to, but gunfire?
+Also, that doesn't even make sense.
+Why would the empire raid out here?!
 
 We turned a corner corner and she ran right into a soldier clad in brown and gold, colors of the empire.
 His visor hid his face.
