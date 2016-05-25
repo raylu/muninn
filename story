@@ -176,9 +176,13 @@ Fair's fair."
 "Okay", I said.
 
 Elle: "What's your name?"
+
 Me: "John. Where am I?"
-Anne: "Trinity"
+
+Anne: "Trinity."
+
 Me: "Trinity? I've never heard of that system."
+
 Anne: "No, Trinity is the name of this planet."
 
 That didn't really help place me anywhere.
@@ -193,9 +197,11 @@ Anne shook her finger at me again.
 I took another bite of something.
 
 Elle: "Where did you come from?"
+
 Me: "I was born in Anoikis.
      The last place I know for sure where I was was New Kor-Azor.
      What's the real name for this planet?"
+
 Anne: "Trinity! But technically, it's Fensi 3."
 
 Fensi.
@@ -203,9 +209,11 @@ That wasn't too far from Amdonen.
 Not that I'd get there any time soon with my pod destroyed.
 
 Anne: "Do you know how you crashed?"
+
 Me: "Not entirely clear. I was getting ready to go to Amdonen.
      The jump gate in NKA mis-fired and I ended up... somewhere.
      Near Fensi 3, I guess."
+
 Elle: "A gate misfired and you ended up in the gravitational pull of Trinity, not in a rock or just in the middle of nowhere?
        Do you know how unlikely that is?"
 
@@ -239,10 +247,13 @@ I got the impression from Elle's enthusiastic explanation the she wanted to go t
 That didn't bode well for me if I wanted a quick exit off this planet.
 
 Me: "That wasn't really a question..."
+
 Elle: "Do you realize how astronomically lucky you are?"
+
 Me: "An empire-controlled jump gate fires countless times taking pods and ships from NKA to Amdonen and I end up nearly dead in Fensi.
      I don't feel terribly lucky.
      More importantly, what's in this hot pop?"
+
 Anne: "You're going to be answering questions until next year if you want an answer to that one."
 
 Smirks on both of their faces.
@@ -450,7 +461,7 @@ like you've done, or even spend the rest of life there?"
 
 "Well, I've never been anywhere but here.
 I believe those places and those people exist, but they only really exist for me in stories.
-To me, everything on Trinity is Trinity and everything else is just 'space'.
+To me, everything on Trinity is Trinity and everything else is just `space'.
 So yes, you live in space."
 
 It was a bit before anyone spoke again.
@@ -491,11 +502,11 @@ There were quite a few sad stories - many of them didn't have any great options 
 Lunch was also less awkward.
 I guess they were used to new faces joining them.
 In the afternoon, I got the chance to ask something I'd been wondering about for a while:
-"How far is 'town', exactly?"
+"How far is `town', exactly?"
 
 "2 hours on a good day."
 
-"What makes a 'good day'?"
+"What makes a `good day'?"
 
 "No rain", she said, as if that was explanation enough.
 
@@ -533,7 +544,7 @@ What the books and films didn't mention was that cars were subject to bumps in t
 You could really feel every little pebble we drove over.
 It's obvious in retrospect, but hindsight doesn't ease discomfort.
 
-"Oh yeah, something important I need to mention: when we meet the guy, it's important to not call him 'Ben'."
+"Oh yeah, something important I need to mention: when we meet the guy, it's important to not call him `Ben'."
 
 "Who?", I asked.
 

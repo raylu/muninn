@@ -13,8 +13,9 @@ content = ''
 title, *chapters = raw.split('\n\n--\n\n')
 for i, chapter in enumerate(chapters):
 	chapter = emph_re.sub(r'\\emph{\1}', chapter)
-	content += '\chapter{}'
-	content += '\n\n' + chapter
+	chapter = chapter.replace(' - ', ' -- ')
+	chapter = chapter.replace('...', '\\ldots ')
+	content += '\chapter{}\n\n' + chapter
 content += '\n'
 for _ in range(82):
 	content += '\n\\newpage\\null'
