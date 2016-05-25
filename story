@@ -59,7 +59,7 @@ I could smell food and it quickly reminded me of how hungry I was.
 
 "Should you be moving around already?" she asked me.
 
-"Need to pee," I answered.
+"Need to pee", I answered.
 
 "Oh."
 She smiled a different smile this time.
@@ -87,7 +87,7 @@ I didn't even know her name, nor she mine.
 
 As I debated the options, a door opened and another sister walked in carrying dangerously many plates and a bowl held between her forearms.
 
-"Oh, it's awake," the newcomer said.
+"Oh, it's awake", the newcomer said.
 
 "It?", I asked, rather taken aback.
 Ungendered pronouns were generally reserved for situations you couldn't identify the gender and for slaves.
@@ -399,7 +399,7 @@ I took a bite of food while wondering how and, more importantly, when to ask abo
 They had shown me - were showing me - a lot of hospitality and I was quite comfortable here anyway.
 What was the rush?
 
-"Inna isn't traditionally an Amarrian name," I said with the appropriate amount of hesitation.
+"Inna isn't traditionally an Amarrian name", I said with the appropriate amount of hesitation.
 
 "My grandmother was born Gallente and she gave me her name."
 
@@ -439,7 +439,7 @@ I seized the opportunity to ask, "So hot pop is made at room temperature and the
 Elle and Inna started speaking at the same time but Anne spoke over them.
 "How much are you willing to pay for that secret?"
 
-"Well," I started, and then paused to think.
+"Well", I started, and then paused to think.
 "I'd give up any hope of going back home to learn the dark craft of hot pop."
 
 "Ah", Inna said, "so the spaceman wants to go back to space."
@@ -468,7 +468,7 @@ So yes, you live in space."
 It was a bit before anyone spoke again.
 We were all a little taken aback by the sudden outpouring of introspection.
 
-"Well," I said, "where I'm from, it's not customary to be so smart in the morning."
+"Well", I said, "where I'm from, it's not customary to be so smart in the morning."
 
 Anne gave me a strange look.
 
@@ -488,7 +488,7 @@ The rest of breakfast was less philosophical.
 
 "-you can get off this rock and back to your life?", she finished.
 
-"Well," I continued, pausing some more.
+"Well", I continued, pausing some more.
 "I've been thinking about it, yeah."
 
 She smiled.
@@ -565,7 +565,7 @@ He was a vehicle maintenance... guy, for lack of a better term, that happend to 
 
 "I know your car's getting a bit old, but there's no way she broke down twice this month", he greeted us.
 
-"No no, Benj, we're here to get a pod for John here," Anne replied, indicating me.
+"No no, Benj, we're here to get a pod for John here", Anne replied, indicating me.
 Benj looked at me as if noticing me for the first time, then warily as if sizing me up.
 
 "You're an offworlder, aren't you?", Benj said.
